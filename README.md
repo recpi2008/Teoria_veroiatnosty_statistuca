@@ -1,0 +1,1 @@
+# Teoria_veroiatnosty_statistuca
